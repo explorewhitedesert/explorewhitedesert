@@ -1,16 +1,10 @@
 # Explore White Desert
 
-Private White Desert safaris from Bahariya, Egypt. Camp under the stars among the white chalk formations of the White Desert.
+Small, local team running **White Desert Egypt safari tours from Cairo** - 2-day camping trips in the White Desert National Park and Bahariya Oasis, plus day tours, Farafra oasis routes and custom desert trips.
 
-## Book your safari
+- Website: **https://explorewhitedesert.github.io/**
+- Book or ask anything on WhatsApp: **https://wa.me/201278220004**
+- 2-day White Desert safari: https://explorewhitedesert.github.io/white-desert-safari-2-days/
+- In Deutsch, Francais, Italiano, Espanol and more: https://explorewhitedesert.github.io/de/
 
-- WhatsApp: https://wa.me/201278220004
-- - Website: https://explorewhitedesert.surge.sh
- 
-  - ## Find us online
- 
-  - - Linktree: https://linktr.ee/explorewhitedesert
-    - - Pinterest: https://pinterest.com/explorewhitedesert/
-      - - Bluesky: https://bsky.app/profile/explorewhitedesert.bsky.social
-        - - Blog: https://explorewhitedesert.wordpress.com/
-          - - Carrd: https://explorewhitedesert.carrd.co
+Real photos from our own trips, real local Bedouin guides, camp under the stars in the chalk formations of the White Desert.
